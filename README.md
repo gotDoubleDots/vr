@@ -2,7 +2,7 @@
 
 30 mL water
 
-To 50 mL white vinegar
+To 50 mL white vinegar , so 30 mL water then add vinegar until at 50 mL mark
 
 30 sec settling
 
@@ -12,7 +12,7 @@ Now add 5 beakers water
 
 Stir with spatula
 
-Now add 4 beakers of basmati organic tj
+Now add 4 50mL beakers of basmati organic Trader Joe's
 
 Stir
 
