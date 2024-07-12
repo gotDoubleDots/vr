@@ -1,6 +1,7 @@
 # vr
 
 ### Instant Pot Duo Plus
+### 50ml Beaker, Low Form Griffin, Borosilicate 3.3 Glass, Double Scale, Graduated, Karter Scientific 213D31
 
 30 mL water
 
