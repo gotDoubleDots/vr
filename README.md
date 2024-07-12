@@ -1,5 +1,7 @@
 # vr
 
+### Instant Pot Duo Plus
+
 30 mL water
 
 To 50 mL white vinegar , so 30 mL water then add vinegar until at 50 mL mark
