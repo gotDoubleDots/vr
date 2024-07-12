@@ -2,6 +2,7 @@
 
 ### Instant Pot Duo Plus
 ### 50ml Beaker, Low Form Griffin, Borosilicate 3.3 Glass, Double Scale, Graduated, Karter Scientific 213D31
+### Trader Joe's Organic Basmati White Rice
 
 30 mL water
 
